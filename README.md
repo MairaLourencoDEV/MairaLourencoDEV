@@ -7,6 +7,6 @@
 - 👯 Quero aprender cada vez mais e desenvolver projetos em conjunto
 - 💬 Tenho uma paixão por UX, então também estou aberta a colaborar positivamente.
 - 📫 https://www.linkedin.com/in/mairalourencomelo
-- ⚡ Curiosidades: Sou do mundo da arte, e sou muito critativa. É muito incrível poder explorar esses pontos junto a area tech.
+- ⚡ Curiosidades: Sou do mundo da arte, e sou muito critativa. Apaixonada por gastronomia, livros e esportes. Sou atleta de Flag 🏈
   
 --> Atualmente estou desenvolvendo um projeto integrador pela faculdade, voltado para uma solução economicamente viável em Recife. Em breve levarei as atualizações também para o linkedin.
