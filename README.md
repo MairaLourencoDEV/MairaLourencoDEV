@@ -1,4 +1,4 @@
-# Olá, me chamo Maíra Lourenço! 
+# Olá, me chamo Maíra Lourenço! 👩🏾‍💻
 
 ## Sou uma apaixonada pela área tech em transição de carreira 🌱
 
